@@ -1,1 +1,2 @@
 # setting
+Gunakan Dengan Bijak
